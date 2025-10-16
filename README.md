@@ -1,1 +1,1 @@
-cEste es mi cuaderno DIGITL DE INFORMATICA
+Este es mi cuaderno digital de informática.
